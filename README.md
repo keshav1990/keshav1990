@@ -35,7 +35,7 @@ I thrive on turning complex challenges into simple, automated solutions. With a 
 
 - **Website:** [Upwork.com](https://www.upwork.com/freelancers/marketingautoamtionexpert)
 - **Email:** [keshavkalra1990@gmail.com](mailto:keshavkalra1990@gmail.com)
-- **LinkedIn:** [linkedin.com/in/keshavkalra/](https://www.linkedin.com/in/keshavkalra/)
+- **LinkedIn:** [https://www.linkedin.com/in/ghl-matketing-automation-expert-make-smartlead/](https://www.linkedin.com/in/ghl-matketing-automation-expert-make-smartlead/)
 
 ---
 
